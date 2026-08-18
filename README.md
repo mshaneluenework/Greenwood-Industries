@@ -1,2 +1,0 @@
-# Greenwood-Industries
-Greenwood Industries
